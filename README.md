@@ -1,3 +1,5 @@
+i didn't give my consents to participate in any trials/therapy/game/show/etc
+
 # facts
 ## water leakages
 ### near refrigenerator from the pipe under the drywall

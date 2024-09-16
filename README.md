@@ -1,4 +1,7 @@
 i didn't give my consents to participate in any trials/therapy/game/show/etc
+i think some group of people trying to make me believe that im mad. 
+i hear voices constantly after ~feb 2024. they almost never quiet
+their behaviour(voices) and sequence of events around me seems too organized and complicated to be implemented by one person. therefore i suggest it organized and controlled by some third-party group(the band)
 
 # facts
 ## water leakages

@@ -3,6 +3,17 @@
 ## i hear voices constantly after ~feb 2024. they almost never quiet
 ## their behaviour(voices) and sequence of events around me seems too organized and complicated to be implemented by one person. therefore i suggest it orgabunized and controlled by ## some third-party group(the band)
 
+# Possible Band crimes
+## human-traffic(organize prostitution)
+## corruption(police dep s)
+## privacy violation
+### hacking and controlling devices(pc, phones, notebouks, quest 2, etc) and soft
+### wiretapping
+##### phone calls 
+possible by sim dupl and/or own transmitter near my home
+##### telegram
+by hacking app or by men-in-the-middle
+
 # episodes
 ## paranoia nigth
 ### M and old male voice was trying to make me sleep while i was watching pron. i tried to resist, but eventualy droped in some kind of sleep with conscience persists.  in this state i saw bloody walls and hear scary voice. feeling fear i was able to raise my head and open eyes. then i jumped through the window in the bedroom :) i feel the chasing and feel fear like never before. i ran several kms over the night Kyiv, screaming to call emergency(i passed over many houses with windows with lights turned on), trying to stop sparse cars(inc ambulances), asked some guard and two gas station's workers - for help. but for several hours i freely was running while curfew. though one police car stopped me, or i stoped them. but they left me on the street acting to theatrically.

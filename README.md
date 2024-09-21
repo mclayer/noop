@@ -2,18 +2,38 @@
 ## i think some group of people trying to make me believe that im mad.
 ## i hear voices constantly after ~feb 2024. they almost never quiet
 ## their behaviour(voices) and sequence of events around me seems too organized and complicated to be implemented by one person. therefore i suggest it orgabunized and controlled by ## some third-party group(the band)
+Supposedly they are trying to discredit me - publicly or in front of some group of people 
+They somehow controll people behaviour, making them act in the same odd maner with common goals. Possible methods:
+- open suggestion
+- hidden suggestion
+  - using special devices
+  - using psychology skills
+- bribes(police, personal contacts, escort) 
+- administrative resource
+- reward(for actors)
 
 # Possible Band crimes
 ## human-traffic(organize prostitution)
 ## corruption(police dep s)
 ## privacy violation
-### hacking and controlling devices(pc, phones, notebouks, quest 2, etc) and soft
+### hacking and controlling devices(pc, phones, notebooks, quest 2, etc) and soft
 ### wiretapping
 ##### phone calls
 possible by sim dupl and/or own transmitter near my home
 ##### telegram
 by hacking app or by men-in-the-middle
 
+# Voices
+## Roles(names is in github secrets)
+- IK
+- MY
+  - good
+  - evil
+- Old man
+- Woman
+- AKO
+- AKZ
+- SBU(FSB) man
 
 # in case of my death
 ## check all disks for:

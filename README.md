@@ -22,6 +22,27 @@ They somehow controll people behaviour, making them act in the same odd maner wi
 possible by sim dupl and/or own transmitter near my home
 ##### telegram
 by hacking app or by men-in-the-middle
+## forced therapy
+
+# stages
+Band told that their actions began:
+- from the birth(like im in vr or they are born with me)
+- when i moved to Kyiv (like they are my employer or some organization)
+- from my first meeting with DN
+- from my first meeting with GK
+- from my second meeting with GK(after DN moved)
+  - the most strangiest dates started from here as i remember
+- from my meeting with LK
+Maybe this stage wasn't controlled, or controlled slightly, or just monitored, or was completely unobserved(natural) 
+## revealed as hallutinations
+I started to hear neighbors. The first time as i remember: i heared man's voice from the power socket behind pc. The voice said something like "hey, who are there?"
+Somwhere in this stage or slighty before i started to feel fear of disturbing nighbors by making to load noises(paranoia)
+This paranoia could heve been:
+- born just inside me
+- induced by the Group
+## revealed as external real third-party group
+From there the Griup started to dialogs with me (there's a chance that i forget some dialgs before this stage)
+
 
 # Voices
 ## Roles(names is in github secrets)

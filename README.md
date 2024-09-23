@@ -47,6 +47,20 @@ Some of episoeds i rememberd
 - teaching me tecniques of speaking and hearing the Group
 - the trial with me as a rapist of two 14yo girls
 -  i was in coma
+### DP with some games
+#### episode at pc with audacity and headphones
+they induced me Arrogant state. Probably for teaching/testing/content.
+#### episode in a bathroom 
+a doctor asked me to watch in the eyes and then tryied to or pretend to erase my memories of last events which i didn't remember right now. they used context switching method and used absurd phrases at the end of sentences
+### Phases
+Where the group changed the their strategies:wi
+- positive
+- real
+- negative
+- aggressive
+- neutral
+Also they have been saying that they has some sub-groups, and when phase
+### Game "Life"
 
 # Voices
 ## Roles(names is in github secrets)

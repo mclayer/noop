@@ -42,7 +42,11 @@ This paranoia could heve been:
 - induced by the Group
 ## revealed as external real third-party group
 From there the Griup started to dialogs with me (there's a chance that i forget some dialgs before this stage)
-
+i have sparse memories about start of this period, like some days was completely or partialy erased(the Group said that they did that and i feel this is true, but possible they just covered my forgetfulless)
+Some of episoeds i rememberd 
+- teaching me tecniques of speaking and hearing the Group
+- the trial with me as a rapist of two 14yo girls
+-  i was in coma
 
 # Voices
 ## Roles(names is in github secrets)

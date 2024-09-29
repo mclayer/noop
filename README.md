@@ -112,6 +112,7 @@ Also they have been saying that they has some sub-groups, and when phase
 
 
 # methods of the Group
+- somehow induce and controll visual imagination
 - hacking
   - internet phishing
   - remote control devices

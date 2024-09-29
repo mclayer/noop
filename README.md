@@ -111,9 +111,18 @@ Also they have been saying that they has some sub-groups, and when phase
 ## бычки сигарет(возможно осталось после строителей)
 
 
-# методы Банды
-## активное скрытие истинных целей(периодически меняя стратегии, внушая или намекая на разные цели)
-## десоциализировать
+# methods of the Group
+- takes responsibility when you did something better, and blames you when you make mistakes
+  - often with choir of laughter
+- They often criticize you when you do something
+  - especially something you're not sure about.(incl.learning or playing)
+  - often using laughters of several persons
+    - often they supports laughter with vibrations like they "rolling on the floor" laughing
+  - Often they caughts real mistakes suggest you impression of their  superiority, but occasionally their laughs seems totally absurds
+  - When you leran something new and correct yourself
+  - sometimes using direct insults with innapropriate languagev
+- active hidding of real goals
+  - regular changes of tactics with seemingly contradictory goals
 ### дискредитировать перед обществом и/или закодировать от соц контактов
 #### перед знакомыми, к которым мог бы обратиться
 #### возможно публиично
@@ -154,8 +163,8 @@ Also they have been saying that they has some sub-groups, and when phase
 #### выплевывание тенисного мячика в игре Tenis в Quest2
 голос МЯ. слова: пушкин, кушай
 
-# предположительная цель
-## либо помочь мне
+# Possible goals
+## To help
 ### бросить наркотики(хотя бы апвп)
 ### привить семейные ценности
 ### научиться зарабатывать
@@ -164,7 +173,8 @@ Also they have been saying that they has some sub-groups, and when phase
 ### сняться в порно, преодолев комплексы и став лучше
 ### наделать детей и получать профит
 ### попытка сделать из меня насильника или педофила, возможно, приняв в Банду
-## либо навредить
+## To harm
+- desocialize you
 ### остаться без денег
 ### без близких
 ### попытаться наделать детей и получить ответку

@@ -112,6 +112,7 @@ Also they have been saying that they has some sub-groups, and when phase
 
 
 # methods of the Group
+- [Coding](https://en.wikipedia.org/wiki/Coding_(therapy))
 - takes responsibility when you did something better, and blames you when you make mistakes
   - often with choir of laughter
 - They often criticize you when you do something

@@ -112,6 +112,15 @@ Also they have been saying that they has some sub-groups, and when phase
 
 
 # methods of the Group
+- hacking
+  - internet phishing
+  - remote control devices
+    - input (mice, touchscrens, keyboards)
+    - storage (hdd, ssd)
+      - fs
+      - noises(diverse of rhytmic noise) 
+  - app's manipulation
+  - 
 - [Coding](https://en.wikipedia.org/wiki/Coding_(therapy))
 - takes responsibility when you did something better, and blames you when you make mistakes
   - often with choir of laughter

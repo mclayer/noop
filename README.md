@@ -13,6 +13,8 @@ They somehow controll people behaviour, making them act in the same odd maner wi
 - reward(for actors)
 
 # Possible Band crimes
+- atempt to harm your health(or kill you) consistently adjusting my habits, my body and events to increase my blood pressure and pulse
+- poising drugs, water and food
 ## human-traffic(organize prostitution)
 ## corruption(police dep s)
 ## privacy violation
@@ -111,8 +113,13 @@ Also they have been saying that they has some sub-groups, and when phase
 ## бычки сигарет(возможно осталось после строителей)
 
 
+# Strategies
+- Concealed adjusting your habbits
+
 # methods of the Group
-- somehow induce and controll visual imagination
+- change of blood pressure
+  - external origin: intensity varies depending of events. e.g. increasing before watching pornography and when you verbally disagree with one of the Group
+- somehow initiate and controll visual imagination
 - hacking
   - internet phishing
   - remote control devices

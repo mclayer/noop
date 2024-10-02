@@ -116,7 +116,24 @@ Also they have been saying that they has some sub-groups, and when phase
 # Strategies
 - Concealed adjusting your habbits
 
-# methods of the Group
+# Tactics/methods of the Group
+- consistently varying the term's meanings
+  - examples
+    - multiple   
+      - yonk - girlfriend, girlfriend from the past, ,  my children, anyone's children, male friend, female freind, KY
+      - porno - watching porn, recording porn, acting for porn, doing sex, watching soccer, take garbage from the streets
+      - rape - doing sex, virtual  rape, real rape, ritual rape
+- invert sentence's meanings
+  - everyone - nobody
+  - ambigous not
+- 
+- threatening/intimidating
+  - examples:
+    - that they or someone going to rape or raping me, my mother, wife, girls i know
+    - someone (often RD) going to fight with me/kill me
+    - that im dead with 4 knife cuts
+    - cut my ball(s)
+    - doing vasectomy 
 - change of blood pressure
   - external origin: intensity varies depending of events. e.g. increasing before watching pornography and when you verbally disagree with one of the Group
 - somehow initiate and controll visual imagination
